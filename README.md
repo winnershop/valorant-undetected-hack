@@ -2,7 +2,7 @@
 
 If you have a problem, come to our discord to buy the premium version https://discord.gg/shopvalorant
 
-
+30 star = mevlana hack + game bugs
 
 
 
